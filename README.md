@@ -1,1 +1,8 @@
-# Python
+- 👋 Hi, I’m @ordinaryyash  
+- 👀 I’m interested in technology, coding, and creating innovative solutions,music and travel.
+- 🌱 I’m currently learning web development and exploring project ideas like Printease and Analog cum digital clock.  
+- 💞️ I’m looking to collaborate on projects that simplify life using tech.  
+- 📫 How to reach me: You can email me at ordinaryyash@gmail.com
+- OR i'm named Ordinaryyash on nearly every platform so yeah.
+- 😄 Pronouns: He/Him.  
+- ⚡ Fun fact: I can play the guitar, flute, and piano a little bit and i look forward to learn some more music
